@@ -1,0 +1,1 @@
+2 Sam 17:8 - Tu scis patrem tuum ejusque milites fortissimos esse, et ursa agresti pullis orbata ferociores. 

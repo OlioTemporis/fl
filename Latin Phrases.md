@@ -1,0 +1,19 @@
+- ades, cuba mecum, mea soror (come and copulate)
+- hoc enim apud Israelitas nefarium (nefas, vetitus) est
+- sed ille nolui ei obsequi, eique per vim stuprum obtulit 
+- signō tubā datō
+- puella in primis formosa (adolescentula virgo)
+- regni spe elatus (regnandi cupidus)
+- singulari pulchritudine praeditus (pulcher valde)
+- annon audisti, Adoniam regem creatum esse, inscio domino nostro Davide?
+- in solio sedere = regnare 
+- alicujus vitam ex angustiis eripere 
+- laetum nuntium afferre 
+- ego discedo quo solent mortales omnes (morior)
+- ut omnia tibi negotia atque studia feliciter succedant 
+- non patieris ejus canos quieti ad inferos descendere
+- alicui beneficium conferre
+- recte, ego de te cum rege sermocinabor
+- et filium meum lateri meo, dormiente me, subducit 
+- mane ubi me erexi, lactatura natum, video mortuum 
+- epluisque et voluptatibus fruebantur
