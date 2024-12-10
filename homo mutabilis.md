@@ -1,0 +1,13 @@
+Mirandula, Oratio de hominis dignitate 1:1 - Legi, Patres colendissimi, in Arabum monumentis, interrogatum Abdalam sarracenum, quid in hac quasi mundana scena admirandum maxime spectaretur, nihil spectari homine admirabilius respondisse.  2. Cui sententiae illud Mercurii adstipulatur: «Magnum, o Asclepi, miraculum est homo».
+
+Mirandula, Oratio de hominis dignitate 5:21 - Medium te mundi posui, ut circumspiceres inde comodius quicquid est in mundo.  22. Nec te celestem neque terrenum, neque mortalem neque immortalem fecimus, ut tui ipsius quasi arbitrarius honorariusque plastes et fictor, in quam malueris tute formam effingas.  23. Poteris in inferiora quae sunt bruta degenerare; poteris in superiora quae sunt divina ex tui animi sententia regenerari.
+
+Baudelaire, Mon cœur mis à nu - Il y a dans tout homme, à toute heure, deux postulations simultanées, l’une vers Dieu, l’autre vers Satan. L’invocation à Dieu, ou spiritualité, est un désir de monter en grade ; celle de Satan, ou animalité, est une joie de descendre. 
+
+Mirandula, Oratio de hominis dignitate 6:28 - Nascenti homini omnifaria semina et omnigenae vitae germina indidit Pater. 29. Quae quisque excoluerit illa adolescent, et fructus suos ferent in illo. 30. Si vegetalia planta fiet, si sensualia obrutescet, si rationalia caeleste evadet animal, si intellectualia angelus erit et Dei filius. 31. Et si nulla creaturarum sorte contentus in unitatis centrum suae se receperit, unus cum Deo spiritus factus, in solitaria Patris caligine qui est super omnia constitutus omnibus antestabit.
+
+Mirandula, Oratio de hominis dignitate  7:32 - Quis hunc nostrum chamaeleonta non admiretur? 33. Aut omnino quis aliud quicquam admiretur magis? 34. Quem non immerito Asclepius Atheniensis versipellis huius et se ipsam transformantis naturae argumento per Protheum in mysteriis significari dixit. 35. Hinc illae apud Hebreos et Pythagoricos methamorphoses celebratae.
+
+Mirandula, Oratio de hominis dignitate  8:40 - Si quem enim videris deditum ventri, humi serpentem hominem, frutex est, non homo, quem vides; si quem in fantasiae quasi Calipsus vanis praestigiis cecucientem et subscalpenti delinitum illecebra sensibus mancipatum, brutum est, non homo, quem vides. 41. Si recta philosophum ratione omnia discernentem, hunc venereris; caeleste est animal, non terrenum. 42. Si purum contemplatorem corporis nescium, in penetralia mentis relegatum, hic non terrenum, non caeleste animal: hic augustius est numen humana carne circumvestitum.
+
+Mirandula, Oratio de hominis dignitate  9:45 - Idcirco scribit Evantes Persa, ubi Chaldaicam theologiam enarrat, non esse homini suam ullam et nativam imaginem, extrarias multas et adventitias.

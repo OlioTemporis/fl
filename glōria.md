@@ -1,0 +1,1 @@
+Mirandula, Oratio de hominis dignitate - Invadat animum sacra quaedam ambitio ut mediocribus non contenti anhelemus ad summa, adque illa (quando possumus si volumus) consequenda totis viribus enitamur.

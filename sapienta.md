@@ -8,3 +8,8 @@
 
 1 Kings 3:12 - scito me tibi non solum postulata concedere, tantamque mentis sapientiam atque prudentiam conferre, sed etiam quae non orasti, [me] daturum esse
 
+Proverbia 1:7 - Jōvae metus caput est scientiae; sapientiam disciplīnamque stultī contemnunt.
+
+Mirandula, Oratio de hominis dignitate  - Igitur si actuosae addicti vitae inferiorum curam recto examine susceperimus, Thronorum stata soliditate firmabimur.
+
+Mirandula, Oratio de hominis dignitate - Ergo et nos Cherubicam in terris vitam emulantes, per moralem scientiam affectuum impetus cohercentes, per dialecticam rationis caliginem discutientes, quasi ignorantiae et vitiorum eluentes sordes animam purgemus, ne aut affectus temere debacchentur aut ratio imprudens quandoque deliret. Tum bene compositam ac expiatam animam naturalis philosophiae lumine perfundamus, ut postremo divinarum rerum eam cognitione perficiamus.

@@ -1,0 +1,1 @@
+Tac. Germ. IV - truces et caerulei oculi, rutilae comae, magna corpora et tantum ad impetum valida: laboris atque operum non eadem patientia, minimeque sitim aestumque tolerare, frigora atque inediam caelo solove adsueverunt.
